@@ -1,4 +1,4 @@
-
+hooked vip Scripts offers the most advanced hooked Script, with esp and speed. Perfect for dominating any match.
 
 
 
